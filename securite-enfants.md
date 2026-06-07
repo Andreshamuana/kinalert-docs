@@ -36,6 +36,6 @@ Tout compte identifié comme appartenant à un enfant de moins de 13 ans peut ê
 
 Pour tout signalement urgent lié à la sécurité des enfants :
 
-Email : [andreprive25@gmail.com](mailto:andreprive25@gmail.com)
+**Email : [contact@kin-alert.com](mailto:contact@kin-alert.com)**
 
 Application : Kin Alerte
