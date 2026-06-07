@@ -88,7 +88,7 @@ Les demandes sont traitées dans un délai maximal de 30 jours.
 
 Pour toute demande :
 
-**Email : [andreprive25@gmail.com](mailto:andreprive25@gmail.com)**
+**Email : [contact@kin-alert.com](mailto:contact@kin-alert.com)**
 
 ## Modifications
 
