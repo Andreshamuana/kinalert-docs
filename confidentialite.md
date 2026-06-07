@@ -100,4 +100,4 @@ La date de dernière mise à jour figure en haut de cette page.
 
 **Kin Alerte**
 
-**Email : [andreprive25@gmail.com](mailto:andreprive25@gmail.com)**
+**Email : [contact@kin-alert.com](mailto:contact@kin-alert.com)**
